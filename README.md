@@ -1,1 +1,1 @@
-# teht-v-3
+Ryhmässä on Anton, Mahti ja Joona
